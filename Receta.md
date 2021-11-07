@@ -1,0 +1,5 @@
+paso 0: si el espagueti no esta cocido  ponga 3.8L de agua una vez que este hirviendo añada 10g de sal por litro y luego la pasta, para saber si la pasta ya esta cocida necesita probarla y observarla. si por dentro esta blanca necesita mas coccion. si se cuela justo cuando esta al dente, es más digerible. la pasta coccida no presenta irregularidades ni diferencias cromaticas.
+paso 1: corte la pacenta en rebanadas de 1/2 centimetro de grosor, despues en tiras pequeñas y finalmente en cubos
+paso 2: bata los huevos en un tazon grande y añadeles el queso pecorino y la pimienta
+paso3: saltee un sarten los cupos de panceta en su propia grasa hasta que se doren. Retire el sarten del fuego e incorpore el espagueti.
+Paso 4: vierta los huevos batidos sobre la pasta. mezcle bien y sirva. (tenga sobre el fuego un poco del agua de coccion de la pasta hirviendo para añadirla en caso de que se reseque despues de añadirle el huevo)
